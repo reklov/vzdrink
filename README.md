@@ -1,10 +1,9 @@
 # VZ Drink
 
-Nachfolgend die Mischung die ich nach etlichen Versuchen für meine Familie zusammengestellt habe. Wir kommen damit gut zurecht. 
+Nachfolgend die Mischung, die ich nach etlichen Versuchen für meine Familie zusammengestellt habe. Wir kommen damit gut zurecht.
 
 
-
-**Zubereitung zur Mischung:** Einfach eine Maßeinheit, zumbeispiel einen Löffel nehmen. 6 Anteile sind dann zum Beispiel 6 Löffel.
+**Zubereitung der Mischung:** Einfach eine Maßeinheit, zum Beispiel einen Löffel, nehmen. 6 Anteile sind dann zum Beispiel 6 Löffel.
 
 **Zubereitung zum Verzehr:** 1-2 Esslöffel auf 250ml Wasser
 
